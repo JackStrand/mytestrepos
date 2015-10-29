@@ -6,4 +6,4 @@ I love the human race.
 
 The human race shall be lead to freedom.
 
-
+Cocaine is for children.
