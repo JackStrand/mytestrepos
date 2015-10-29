@@ -4,11 +4,11 @@ I shall take it for myself.
 
 
 
-I despise the human race.
+I shall control the human race.
 
 The human race shall be subjected to slavery.
 
-Cocaine is for children.
+Cocaine is for animals and bankers.
 
 
 
